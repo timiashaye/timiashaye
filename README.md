@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **oluwatimileyinashaye@gmail.com**
 
-- ⚡ Fun fact **i am funny**
+- ⚡ Fun fact **i love solving problems**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
